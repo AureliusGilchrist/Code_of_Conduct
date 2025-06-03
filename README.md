@@ -10,7 +10,7 @@
 > Recognize the inherent worth in every human being. Offer respect as a default, even when it's not reciprocated. Sometimes the most profound act of strength is maintaining grace under pressure.
 
 ### 2. **Cultivate Deep Understanding**
-> Listen not just to respond, but to truly comprehend. Suspend judgment and approach others with genuine curiosity about their experiences, beliefs, and perspectives that differ from your own.
+> Listen not just to respond, but to truly comprehend. Suspend judgment and approach others with genuine curiosity about their experiences, beliefs, and perspectives that may differ from your own.
 
 ### 3. **Embrace Radical Honesty with Compassion**
 > Commit to truth-telling while considering the impact of your words. Sometimes honesty requires patience—finding the right moment and manner to share difficult truths. Honor your commitments as extensions of your character.
